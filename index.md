@@ -1,2 +1,2 @@
 
-[vitae](/pdf/choi_cv.pdf)
+[vitae](/pdf/CHOI_CV_Nov2020.pdf)
